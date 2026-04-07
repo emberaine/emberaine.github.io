@@ -15,7 +15,7 @@ here are some personal random facts about me, or at least, any of the ones that 
 - my pfp was made by mei, go visit her!
 
 # professional stuff
-i am the primary founder and owner of [starlight development](tab:https://starlightdev.gitbook.io), and do tons of projects and various stuff there! i used to be a rec room (rrs) developer, before the platform ended up [shutting down](tab:https://blog.recroom.com/posts/schools-out-for-rec-room) due to low funds. it was a great experience throughout, and really shaped who i am as a person today!
+i am the primary founder and owner of [starlight development](tab:https://starlightdev.gitbook.io), and do tons of projects and various stuff there! i used to be a rec room (rrs) developer, before the platform ended up [shutting down](tab:https://blog.recroom.com/posts/schools-out-for-rec-room) due to low funds. it was a great experience throughout, and really shaped who i am as a person today! nowadays, i've been learning vrchat development, various scripting languages, minecraft modding, and much, much more! expect vrc projects soon, as i migrate from rrs to this new platform.
 
 # really cool and interesting people to note down:
 i talk to a LOT of people (for the most part) and theres usually only a few people that i actually find interesting, here they are, go visit them totally!
