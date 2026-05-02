@@ -1,6 +1,6 @@
 # basic info
 
-hii! im ember, a developer girl/internet person you may know from somewhere along the intrawebs!
+hii! im emi, a developer girl/internet person you may know from somewhere along the intrawebs!
 
 # where can i contact u?
 im most active on discord **@Emberainee** but you can usually find me on other platforms as **@Emberaine**, **@Ember**, and other variations of that.
