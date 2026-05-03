@@ -20,8 +20,8 @@ i am the primary founder and owner of [starlight development](https://starlightd
 # really cool and interesting people to note down:
 i talk to a LOT of people (for the most part) and theres usually only a few people that i actually find interesting, here they are, go visit them totally!
 
-- Somone VR, og friend and generally cool person i've known for wayy too long
 - Meadow, genuinely a fuckin twin on wayy too much stuff, just a clone with some different params set
+- Somone VR, og friend and generally cool person i've known for wayy too long
 - Vivi, transgirl from ages ago that has had many similar interests in the past, very cool person
 - Mei, person that made my pfp, also i've known her for years and years and she is currently the friend ive kept contact with the longest
 
